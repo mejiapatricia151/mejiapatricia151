@@ -1,5 +1,4 @@
-### Hi there 👋
-
+mi nombre es patricia intructora de danza amo la danza es mi pasion y mi deseo es que cada dia se impulse mas desde niño para que no se pierdan  nada 
 <!--
 **mejiapatricia151/mejiapatricia151** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
